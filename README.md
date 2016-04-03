@@ -1,7 +1,7 @@
 # [RoyalTg](https://telegram.me/RoyalTg) 
 
 
-[Mohammad](https://github.com/IDeactive) ([Telegram](https://telegram.me/IDeactive_Admin))
+[Mohammad](https://github.com/IDeactive) ([Telegram](https://telegram.me/IDeactive))
 
 [Amin](https://github.com/Mrhalix) ([Telegram](https://telegram.me/Mrhalix))
 
